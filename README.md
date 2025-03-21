@@ -1,4 +1,3 @@
-![jinwoo3](https://github.com/user-attachments/assets/5d2a8cef-1f5c-474f-8639-d57d5bccfded)# SungJinWoo
 Sung Jin-Woo Skin for Amp
 
 Thanks to NeonRain for the character!
