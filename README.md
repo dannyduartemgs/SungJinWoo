@@ -4,6 +4,8 @@ Thanks to NeonRain for the character!
 
 ARISE and conquest the hardest dungeon: Petrichor V. He comes with his Sword but no shadows came this time.
 
+Also, my music pack contains Dark Aria for one boss battle. Good luck finding it ;)
+
 I'm also planning for another skin If I can find a dual dagger character that works. 
 
 ![jinwoo1](https://github.com/user-attachments/assets/23f30ac5-ea9e-4d35-a2d0-a5fc3694796e)
